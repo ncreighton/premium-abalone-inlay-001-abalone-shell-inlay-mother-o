@@ -1,0 +1,2 @@
+# premium-abalone-inlay-001-abalone-shell-inlay-mother-o
+Tired of chipped shells and uneven gaps ruining your inlay projects? The Abalone Shell Inlay &amp; Mother of Pearl Craft Lab gives you a repeatable, waste-free system to create flawless, shimmering pieces every time.  This digital lab solves the #1 pain point of inlay crafters: inconsistent results from trial-and-error methods. You get a structured, pr
